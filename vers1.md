@@ -46,11 +46,10 @@ Satan satan, tog min kropp och säl
 ## Honey Honey
 
 [Karon]
-Rollar på floden
-Styx, med mitt färgkarlskar
+Rollar på floden Styx, med mitt färgkarlskar
 
-[Sulbrink]
-
+[Faust]
+Trollat i tio år, nu finns inget kvar
 
 [Gretchen]
 Försökt (försökt) att nå (att nå)
