@@ -55,6 +55,20 @@ Trollat i tio år, nu finns inget kvar
 Försökt (försökt) att nå (att nå)
 Har till och med ringt 112
 
+<Andra halvan av bryggan? Något med sulbrink?>
+
+[Faust]
+Satan satan, lugna gatan
+nu har vi gjort en ny deal (Woohoo)
+
+[Gretchen]
+Satan satan, spara datan
+
+Älskling jag ser dig, jag ska få med dig
+
+[Faust]
+Satan satan tog min kropp och säl
+Åh baby, ta mig hem
 
 
 [Verse 1]
