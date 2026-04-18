@@ -60,8 +60,12 @@ Försökt (försökt) att nå (att nå)
 Har till och med ringt 112
 
 [Faust]
-Satan satan, lugna gatan
-nu har vi gjort en ny deal (Woohoo)
+Hann ej, hann ej, säga mitt farväl
+Sa inte ens hejdå (hejdå)
+
+[Gretchen]
+Fann dig, Fann dig, nu så är jag här
+och jag ska få dig hem (också)
 
 [Gretchen]
 Satan satan, spara datan
@@ -69,7 +73,7 @@ Satan satan, spara datan
 Älskling jag ser dig, jag ska få med dig
 
 [Faust]
-Satan satan tog min kropp och säl
+Fan satan tog min kropp och säl
 Åh baby, ta mig hem
 
 
