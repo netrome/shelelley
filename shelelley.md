@@ -17,5 +17,3 @@ Jag var i Shelley (jaha?)
 Du var i Shelley (nähä?)
 Hon var i Shelley
 Alla av oss var i Shelley
-
-
