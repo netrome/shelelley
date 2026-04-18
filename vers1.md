@@ -17,17 +17,16 @@ Jag är solen, du är månen,
 vi tar Percy by the balls
 
 [Percy]
-Tack för kaffet, bönan
-Är uppe innan tuppen
-Där och charmar hönan
-Lastar guldägg i trucken
+Tack för medicinen
+Låt mig få presentera
+Mitt mästerverk är klart snart
+Ska bara dricka mera
 
 [Shelley]
 Skulle va sweet och nice
 Unna mig bit av den auran
 Men ingen diggar min vibe,
 Alla ba diggar den där, Byron
-
 
 
 ## Original
