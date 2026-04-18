@@ -67,13 +67,10 @@ Sa inte ens hejdå (hejdå)
 Fann dig, Fann dig, nu så är jag här
 och jag ska få dig hem (också)
 
-[Gretchen]
-Satan satan, spara datan
-
 Älskling jag ser dig, jag ska få med dig
 
 [Faust]
-Fan satan tog min kropp och säl
+Fan åh, Fan åh, tog min kropp och säl
 Åh baby, ta mig hem
 
 
