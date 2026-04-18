@@ -67,7 +67,8 @@ Sa inte ens hejdå (hejdå)
 Fann dig, Fann dig, nu så är jag här
 och jag ska få dig hem (också)
 
-Älskling jag ser dig, jag ska få med dig
+[Sulbrink]
+Enligt kontraktet, så är det sagt att
 
 [Faust]
 Fan åh, Fan åh, tog min kropp och säl
