@@ -1,3 +1,4 @@
+```
 [Victoria]
 För att du ska ha en chans
 måste du bli bra på dans
@@ -15,3 +16,4 @@ som fabriken nånsin sett
 Du ska
 Inte bli ett monster
 Inte bli ett monster...
+```

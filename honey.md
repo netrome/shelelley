@@ -1,3 +1,4 @@
+```
 [Karon]
 Rollar på floden Styx, med mitt färgkarlskar
 
@@ -26,3 +27,4 @@ Enligt kontraktet, så är det sagt att
 [Faust]
 Fan åh, Fan åh, tog min kropp och säl
 Åh baby, ta mig hem
+```
