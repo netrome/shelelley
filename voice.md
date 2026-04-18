@@ -1,9 +1,7 @@
 ```abc
 X: 1
-T: Komp
 M: 4/4
 L: 1/1
-R: reel
 K: Gmin
 V:SA clef=treble name="SA"
 V:TB clef=bass   name="TB" octave=-2
