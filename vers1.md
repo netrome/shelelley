@@ -51,11 +51,13 @@ Rollar på floden Styx, med mitt färgkarlskar
 [Faust]
 Trollat i tio år, nu finns inget kvar
 
+[Sulbrink]
+Följ här (följ här) med mig (med mig)
+och lämna ditt liv bakom dig
+
 [Gretchen]
 Försökt (försökt) att nå (att nå)
 Har till och med ringt 112
-
-<Andra halvan av bryggan? Något med sulbrink?>
 
 [Faust]
 Satan satan, lugna gatan
