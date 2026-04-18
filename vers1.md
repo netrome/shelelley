@@ -30,9 +30,9 @@ Alla ba diggar den där, Byron
 
 [Alla]
 Shelelley monster
-Shelelley byron
+Shelelley Byron
 Shelelley moster
-Shelelley karon
+Shelelley Karon
 
 Shelelley hästen
 Shelelley kören
